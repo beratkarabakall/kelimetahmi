@@ -1,0 +1,2 @@
+# kelimetahmi
+gezegen tahmin
